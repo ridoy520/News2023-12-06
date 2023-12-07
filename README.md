@@ -71,7 +71,9 @@
 
 নতুন একটি সিনেমা মুক্তি পেয়েছে। সিনেমাটির নাম "অগ্নি"। সিনেমাটিতে অভিনয় করেছেন শাকিব খান, পূজা চেরি ও নবাগত অভিনেত্রী নুশরাত ফারিয়া।
 
-
+Brother MFC-J1010DW Wireless Color Inkjet All-in-One Printer with Mobile Device and Duplex Printing, Refresh Subscription and Amazon Dash Replenishment Ready
+Details:
+https://amzn.to/489Mb8R
 
 ব্যবসা
 
@@ -123,6 +125,9 @@
 বাংলাদেশে আসন্ন নির্বাচন
 বাংলাদেশে ২০২৪ সালে সাধারণ নির্বাচন অনুষ্ঠিত হবে। নির্বাচনকে ঘিরে রাজনৈতিক দলগুলির মধ্যে তুমুল প্রচারণা চলছে।
 
+VOISEN 4 ROLLS Plotter Paper,CAD Bond Rolls 24in*150ft,20lb,Bond Paper on 2" Core for CAD Printing on Wide Format Ink Jet Printers
+Details:
+https://amzn.to/3uF0ZO3
 
 ব্যবসা
 
